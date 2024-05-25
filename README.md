@@ -7,7 +7,7 @@
 ## 🔐 Proyectos:
 
 - 📍 I am a network and connectivity engineer.
-- 📍 I work as a manager at dovux games
+- 📍 I work as a manager
 - 📍 I know what is needed in the languages below
 - 📍 worked for many brands in the gamer market
 
